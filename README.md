@@ -1,0 +1,1 @@
+# madeshiro.github.io
